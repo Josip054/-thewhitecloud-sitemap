@@ -1,2 +1,0 @@
-# -thewhitecloud-sitemap
-thewhitecloud-sitemap
